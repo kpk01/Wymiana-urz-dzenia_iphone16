@@ -1,1 +1,1 @@
-# Wymiana-urz-dzenia_iphone16
+# Wymiana-urządzenia_iphone16
